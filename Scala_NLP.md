@@ -1,0 +1,1 @@
+- http://lamp.epfl.ch/files/content/sites/lamp/files/teaching/student-project-reports/semester/Stanislav_Peshterliev_parallelnlp.pdf
